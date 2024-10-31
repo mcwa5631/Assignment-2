@@ -1,1 +1,1 @@
-Contact information here
+Email: mcwa5631@mylaurier.ca
